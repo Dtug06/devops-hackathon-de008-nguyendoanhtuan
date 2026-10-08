@@ -1,1 +1,1 @@
-Các lenh
+Các lenh da chay
